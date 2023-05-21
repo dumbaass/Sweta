@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sweta💓
 - 👀 I’m economics student but love coding.
-- 🌱 I’m currently learning learning coding<3
+- 🌱 I’m currently learning coding<3
 - 💞️ hihi.
 - 📫 How to reach me ... My insta : @dumbaass.___
 
